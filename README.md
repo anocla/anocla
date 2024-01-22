@@ -4,7 +4,7 @@
 - 📚 Actualmente estoy cursando el Máster de Diseño Web con HTML, CSS, JavaScript y Wordpress
 - ✨ Es momento de absorción de información para conseguir esa fusión perfecta entre arte y tecnología con desarrollo y creación de nuevas expresiones artísticas, intentado aportar mi pedacito en una sociedad en constante transformación del mundo digital 
 - 📫 No soy muy difícil de encontrar fed@andreaochoalabrador.com
-- 📎 Pasa a verme, anímate,¿no tienes curiosidad?: 🙋🏼‍♀️ https://andreaochoalabrador.com/
+- 📎 Pasa a verme, anímate, ¿no tienes curiosidad?: 🙋🏼‍♀️ https://andreaochoalabrador.com/
 
 
 
